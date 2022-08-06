@@ -1,7 +1,7 @@
 Kinda inactive user. I don't do much
 YT:https://www.youtube.com/channel/UCD40LTLLH0dYMa9i11DoJxA 
 (Inactive for the time being may rebrand in the near future.)
-Discord:
+Discord:Idkbuster40#2938
 (^dms closed for the time being.)
 @Idkbuster40
 <!---
