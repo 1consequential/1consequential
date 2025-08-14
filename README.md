@@ -1,5 +1,5 @@
 [For more info.](https://1consequential.github.io/index.html)
-Busy with many things in life. 
+Busy with many things in life right now, come back later. 
 
 <!--Nothing much happens here, move onward with your life.-->
 
