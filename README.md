@@ -1,4 +1,7 @@
-Nothing much happens here, move onward with your life.
+[For more info.](https://1consequential.github.io/index.html)
+Busy with many things in life. 
+
+<!--Nothing much happens here, move onward with your life.-->
 
 <!--Kinda inactive user, I don't do much.
 YT: https://www.youtube.com/channel/UCD40LTLLH0dYMa9i11DoJxA 
